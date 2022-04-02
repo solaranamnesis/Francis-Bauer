@@ -1,4 +1,4 @@
-# Francis Bauer ().
+# Francis Bauer (1758 - 1840).
 
 ## Microscopical Observations on the Red Snow (1819)
 
