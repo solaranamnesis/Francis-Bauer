@@ -1,6 +1,8 @@
-Extracted from the _Quarterly Journal_, No. 14, July 1819.
+# Microscopical Observations on the Red Snow
 
-By Francis Bauer, F. L. S. F. II. S., in a Letter to W. T. Brande, Esq, Sec. R. S., &c.
+## Extracted from the _Quarterly Journal_, No. 14, July 1819.
+
+## By Francis Bauer, F. L. S. F. II. S., in a Letter to W. T. Brande, Esq, Sec. R. S., &c.
 
 Dear Sir,
 
