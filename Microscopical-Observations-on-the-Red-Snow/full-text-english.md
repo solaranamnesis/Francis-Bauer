@@ -68,26 +68,26 @@ Kew-Green, 25th April, 1819.
 
 Explanation of the Plate. (Plate VI.)
 
-Fig. 1. A 1/160,000 part of a square inch, containing 16 full-grown fungi of _uredo nivalis_, magnified 400 times in diameter, or 160,000 times in superficies.
+[Fig. 1.](https://cdn.solaranamnesis.com/FrancisBauer/Francis-Bauer-Plate-All-Figures.webp) A 1/160,000 part of a square inch, containing 16 full-grown fungi of _uredo nivalis_, magnified 400 times in diameter, or 160,000 times in superficies.
 
-Fig. 2. Some young fungi.
+[Fig. 2.](https://cdn.solaranamnesis.com/FrancisBauer/Francis-Bauer-Plate-All-Figures.webp) Some young fungi.
 
-Fig. 3. Some full-grown fungi, but larger than the usual, or general, size.
+[Fig. 3.](https://cdn.solaranamnesis.com/FrancisBauer/Francis-Bauer-Plate-All-Figures.webp) Some full-grown fungi, but larger than the usual, or general, size.
 
-Fig. 4. A large sized fungus, in a colourless and transparent state, when it is seen that these fungi are neither recticular nor cellular, but the granular contents are in that state perceptible.
+[Fig. 4.](https://cdn.solaranamnesis.com/FrancisBauer/Francis-Bauer-Plate-All-Figures.webp) A large sized fungus, in a colourless and transparent state, when it is seen that these fungi are neither recticular nor cellular, but the granular contents are in that state perceptible.
 
-Fig. 5. A cluster of fungi of different sizes, on their spawn, as found in the original bottle.
+[Fig. 5.](https://cdn.solaranamnesis.com/FrancisBauer/Francis-Bauer-Plate-All-Figures.webp) A cluster of fungi of different sizes, on their spawn, as found in the original bottle.
 
-Fig. 6. A cluster of nearly full-grown colourless fungi, on their spawn, as lately grown in an open glass in the house.
+[Fig. 6.](https://cdn.solaranamnesis.com/FrancisBauer/Francis-Bauer-Plate-All-Figures.webp) A cluster of nearly full-grown colourless fungi, on their spawn, as lately grown in an open glass in the house.
 
-Fig. 7. A small cluster of full-grown fungi, in a dry state. All the above figures represent _uredo nivalis_.
+[Fig. 7.](https://cdn.solaranamnesis.com/FrancisBauer/Francis-Bauer-Plate-All-Figures.webp) A small cluster of full-grown fungi, in a dry state. All the above figures represent _uredo nivalis_.
 
-Fig. 8. A cluster of the same fungi on their spawn.
+[Fig. 8.](https://cdn.solaranamnesis.com/FrancisBauer/Francis-Bauer-Plate-All-Figures.webp) A cluster of the same fungi on their spawn.
 
-Fig. 9. A 1/400 part of an inch in diameter, sustaining 3 full-grown fungi of _uredo graminis_. In these fungi a hexagonal recticulation is perceptible.
+[Fig. 9.](https://cdn.solaranamnesis.com/FrancisBauer/Francis-Bauer-Plate-All-Figures.webp) A 1/400 part of an inch in diameter, sustaining 3 full-grown fungi of _uredo graminis_. In these fungi a hexagonal recticulation is perceptible.
 
-Fig. 10. A cluster of the same fungi of different sizes and ages, on their spawn.
+[Fig. 10.](https://cdn.solaranamnesis.com/FrancisBauer/Francis-Bauer-Plate-All-Figures.webp) A cluster of the same fungi of different sizes and ages, on their spawn.
 
-Fig. 11. A 1/400 part of an inch in diameter, sustaining 4 full-grown fungi of _uredo faetida_.
+[Fig. 11.](https://cdn.solaranamnesis.com/FrancisBauer/Francis-Bauer-Plate-All-Figures.webp) A 1/400 part of an inch in diameter, sustaining 4 full-grown fungi of _uredo faetida_.
 
 Every object in this plate is magnified _four hundred_ times in diameter, and _one hundred and sixty thousand_ times in superficies; and if the objects were contemplated as solids, they would be magnified _sixty-four millions of times_.
