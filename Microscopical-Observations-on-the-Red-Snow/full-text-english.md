@@ -66,7 +66,7 @@ Francis Bauer.
 
 Kew-Green, 25th April, 1819.
 
-Explanation of the Plate. (Plate VI.)
+## Explanation of the Plate. (Plate VI.)
 
 [Fig. 1.](https://cdn.solaranamnesis.com/FrancisBauer/Francis-Bauer-Plate-All-Figures.webp) A 1/160,000 part of a square inch, containing 16 full-grown fungi of _uredo nivalis_, magnified 400 times in diameter, or 160,000 times in superficies.
 
